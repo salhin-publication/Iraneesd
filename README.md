@@ -8,7 +8,7 @@
 
 https://www.srttu.edu/environment/
 
-and now all its contents have been transferred to this site:
+and now It is inactive so all its contents have been transferred to this site:
 
    - 👀 EESD Menbers are interested in Environmental education, environmental engineering under agriculture and natural resources, natural resource engineering, forestry engineering, rangeland and watershed management, wood industry engineering, environmental engineering under civil engineering, biology and marine biology, marine pollution, ecology And Marine Ecology, Taxonomy, Biodiversity and Biosystematics, Zoology, Botany, Agriculture, Environmental Chemistry, Natural and Environmental Disasters, Environment and Landscape Design, Environmental Design, Environmental Health, Environmental Protection, Environmental Health Biology, Environmental Education Management and Planning, Urban Planning and Planning, Environmental Law, Water Resources Engineering, Geology, Education, Islamic Studies, Theology, Psychology, Literature, Social Science, Curriculum, Science . And ICT, Computer, Remote Sensing, Aerospace, Nanotechnology, Biomedicine, Geomatics and Surveying, Statistics, Political Science and Environmental Sciences, Chemistry, Physics, Mathematics, Civil Engineering, Industrial Engineering, Physical Education and Related Fields They can join online....
  Dr. Jalal Valiallahi  Shahid Rajaee Teacher Training UniversityThe is one of the founder of the board and the chairman of the board of director
